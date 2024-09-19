@@ -1,5 +1,9 @@
 # bem vindo ao meu perfil 
 meu nome é ana julia da silva de lima
 
-*estou estudando na Alura
-*
+*gosto de ler livros
+*treino desde os 13 anos
+*sou filha unica
+*adoro doces, pricipalmente chocolates
+*tenho 7 passaros em casa
+*quero cursar farmacia e me especializar em desenvolvimento de cosmeticos
